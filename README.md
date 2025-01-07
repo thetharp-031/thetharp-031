@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Isaac Amponsah Sam. 
+- 👋 Hi, I’m Everyone!
 - 👀 I’m interested in Teaching, Learning, playing football and watching sports activities. 
 - 🌱 I’m currently learning coding and how to engage effectively in the crypto world. 
 - 💞️ I’m looking to collaborate on Pi Network Developer community and also, working with UK DFEs. 
